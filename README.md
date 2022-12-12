@@ -1,1 +1,0 @@
-# adrian-trujillo.github.io
